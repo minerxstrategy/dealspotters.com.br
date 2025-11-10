@@ -1,0 +1,1 @@
+# dealspotters.com.br
